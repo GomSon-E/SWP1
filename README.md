@@ -1,2 +1,2 @@
 20192891 Son youjung
-Kookmin Univ. KIBS
+Kookmin Univ. KIBS dept.
